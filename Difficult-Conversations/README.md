@@ -19,5 +19,6 @@
 - Listen for feelings, and reflect on your intentions.
 
 ### The Feelings Conversation
+- Studies show that while few people are good at detecting factual lies, most of us can determine when someone is distorting, manufacturing, or withholding an emotion.
 
 ### The Identity Conversation
