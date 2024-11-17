@@ -33,3 +33,15 @@ The phrase "a hub of" refers to a central point or focal area for a specific typ
 
 "Inculcate" means to instill or teach something to someone through persistent instruction or repetition. It often involves reinforcing a particular idea, habit, value, or belief until it becomes firmly established in the person's mind. "The teacher aimed to inculcate a sense of responsibility and discipline in her students."
 "Parents often try to inculcate good manners in their children."
+
+**Lash Out**
+
+"Lash out" means to suddenly and forcefully express anger or frustration, often in a verbal or physical way. It typically refers to reacting impulsively, harshly, or aggressively in response to a situation, usually due to feeling upset, provoked, or overwhelmed.
+
+**Immune to**
+
+The phrase "immune to" means being unaffected by or resistant to something, whether it be a disease, influence, criticism, or other external factors. It suggests a form of protection or insusceptibility.
+
+**Toss Aside**
+
+"Toss aside" means to discard, reject, or disregard something or someone casually or without much thought. It implies letting go of something quickly, often because it is no longer considered useful, important, or worthy of attention.
