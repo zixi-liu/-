@@ -45,3 +45,55 @@ The phrase "immune to" means being unaffected by or resistant to something, whet
 **Toss Aside**
 
 "Toss aside" means to discard, reject, or disregard something or someone casually or without much thought. It implies letting go of something quickly, often because it is no longer considered useful, important, or worthy of attention.
+
+**Spectar**
+
+"Specter" refers to a ghost or a spirit, often one that is haunting or frightening. It can also be used metaphorically to describe a looming threat, fear, or something that haunts people's minds.
+
+**Quibble With**
+
+To "quibble with" means to argue or raise objections, usually about a trivial or minor point. It often involves nitpicking or focusing on small details rather than addressing the main issue. 
+
+**Corroborate**
+
+"Corroborate" means to confirm or support a statement, theory, or finding with additional evidence or proof. When something is corroborated, it is backed up or strengthened by evidence that adds credibility or verification. "The witness's testimony was corroborated by video footage."
+
+**a ragtag band of**
+
+"a ragtag band of" refers to a group of people or things that are diverse, disorganized, or imperfectly matched, often implying they are a bit rough around the edges but can still achieve something significant or come together for a purpose.
+
+**Conscious**
+
+"Conscious" means being aware of and able to perceive, think, and respond to one's surroundings. It implies having a sense of self-awareness or knowledge about something. It can also refer to being awake and alert, as opposed to being unconscious.
+
+**Smuggle in**
+
+"Smuggle in" means to secretly and illegally bring something or someone into a place, often to avoid detection, restrictions, or laws. It typically involves transporting items or people without proper authorization or through concealed methods.
+
+**Cling to**
+
+"Cling to" means to hold tightly onto something, either physically or emotionally, and often implies a strong attachment or reluctance to let go. It can refer to literal physical holding or to maintaining a belief, feeling, or hope.
+
+**A biting wit**
+
+"A biting wit" refers to a sharp, incisive, and often harsh sense of humor or cleverness. Someone with a biting wit uses cutting, sometimes sarcastic or critical remarks to make a point, often revealing a quick intelligence and keen observation, but in a way that can sting or sharply criticize.
+
+**Squeal away**
+
+"Squeal away" typically describes making a loud, high-pitched noise or sound continuously or for a prolonged period. It can be used to refer to people, animals, or even mechanical sounds that are shrill and persistent.
+
+**Snuff out**
+
+"Snuff them out" means to extinguish, eliminate, or put an end to something, often in a sudden or forceful way. The phrase originally comes from the action of extinguishing a candle flame by pinching or covering it. Figuratively, it can refer to stopping or getting rid of people, ideas, movements, or anything perceived as a threat or unwanted.
+
+**A Kernel of Truth**
+
+A "kernel of truth" refers to a small, core element of truth within a larger statement, story, or belief that may otherwise be exaggerated, distorted, or surrounded by falsehoods.
+
+**Hold Down**
+- To keep or secure something in place;
+- To maintain or manage a position or responsibility;
+
+**A litany of**
+
+"A litany of" refers to a long, repetitive list or series of something, often used to describe a sequence of complaints, problems, grievances, or repetitive elements. 
