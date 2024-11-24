@@ -97,3 +97,39 @@ A "kernel of truth" refers to a small, core element of truth within a larger sta
 **A litany of**
 
 "A litany of" refers to a long, repetitive list or series of something, often used to describe a sequence of complaints, problems, grievances, or repetitive elements. 
+
+**A Feuding History**
+
+A feuding history refers to a record or narrative of prolonged conflict or animosity between two or more parties, often spanning a significant period. Feuds can involve individuals, families, groups, or even nations and are characterized by recurring disputes, hostility, or acts of retaliation.
+
+**Leap out**
+
+To jump out from a place of concealment: This usage describes someone or something suddenly emerging from hiding. For example:
+- "The cat leaped out from behind the curtain."
+To be immediately noticeable or striking: This figurative sense refers to something that captures attention due to its prominence or distinctiveness. For instance:
+- "The bright colors in the painting leap out at the viewer."
+
+**Gruesome**
+
+Describe something that causes horror, disgust, or shock, often because it involves extreme violence, injury, or death. It emphasizes the graphic or horrifying nature of something.
+
+**Uproot their lives**
+
+"uproot their lives" is a metaphorical expression that refers to someone making a significant change or leaving behind their current situation, often in a disruptive or emotional way. It implies leaving behind a familiar or established way of life, such as a home, community, or routine, much like uprooting a plant from its soil.
+
+**Reckon**
+
+To Think or Believe (Informal)
+- Commonly used in casual speech to express an opinion or belief.
+- "I reckon it'll rain later."
+- "Do you reckon we should leave now?"
+
+To Calculate or Estimate
+- Used when determining a number, value, or outcome, often in a rough or informal way.
+- "They reckon the repairs will cost around $500."
+- "I reckon there are about 50 people in the room."
+
+**Foray**
+
+The word foray has two primary meanings, depending on context. It can refer to an act of exploration or venture into a new area or, more traditionally, a sudden attack or raid.
+- "The company’s foray into electric vehicles marked a new chapter in its history."
