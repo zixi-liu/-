@@ -133,3 +133,49 @@ To Calculate or Estimate
 
 The word foray has two primary meanings, depending on context. It can refer to an act of exploration or venture into a new area or, more traditionally, a sudden attack or raid.
 - "The company’s foray into electric vehicles marked a new chapter in its history."
+
+**Catapult**
+
+Metaphorically, "catapult" means to propel someone or something forward suddenly and forcefully, often leading to rapid progress or success.
+- "Her breakthrough performance catapulted her to stardom overnight."
+
+**Ostensibly**
+
+The term "ostensibly" means apparently or seemingly, but often implies that the reality may be different from what is being presented. 
+
+Straightforward:
+- "She is ostensibly working on her report."
+(It seems she is working on her report, but perhaps she's doing something else.)
+
+Implying Doubt:
+- "The trip was ostensibly for business purposes, but they spent most of their time sightseeing." (It appeared to be a business trip, but the real purpose might have been leisure.)
+
+**embroil**
+
+The term "embroil" means to become deeply involved in a situation, often one that is complicated, difficult, or contentious.
+- "She got embroiled in office politics despite trying to stay neutral." (She became involved in a complex and possibly unpleasant scenario.)
+
+Synonyms:
+- Entangle
+
+**barge into**
+
+The phrase "barge into" means to enter a place, situation, or conversation abruptly, forcefully, or without permission, often in a way that is rude or intrusive.
+- "He barged into the room without knocking."
+(Entered suddenly and without consideration.)
+
+**stroll by**
+
+The phrase "stroll by" means to walk past something or someone in a relaxed, leisurely manner. It conveys a sense of calm and unhurried movement.
+- "I saw him stroll by the park this morning."
+
+**relent to**
+
+The phrase "relent to" means to soften one's stance or attitude and agree to something after initially resisting or opposing it. It often implies yielding, giving in, or showing compassion or flexibility.
+- "After hours of negotiation, she finally relented to their demands."
+
+**slog it out**
+
+The phrase "slog it out" means to persist through a challenging or difficult situation, often involving hard work, struggle, or prolonged effort, until a resolution or result is achieved. It is commonly used to describe situations where determination and endurance are key.
+- "The two teams decided to slog it out on the field until a winner was declared."
+(They fought hard and persisted through the game to determine the outcome.)
