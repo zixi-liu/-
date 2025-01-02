@@ -42,4 +42,32 @@
 - Third-person positives
 - Indirect positives
 
+## Chapter 3. Listening So Others Will Talk
+
+## Chapter 4. Taking Advantage of Free Information
+
+## Chapter 5. Letting Others Know Who You Are
+
+Self-Disclosing
+- The process of unveiling: people usually disclose at the same rate.
+- Four progressively deepening levels through which communication generally passes:
+  - clichés
+    - more clichés: weather, work, kids, etc.
+  - facts
+    - in new relationships, these will be usually basic facts of life
+    - each person tries to find out whether there's enough to share to make a relationship worthwhile.
+  - opinions
+    - someone who wants to know what you're really like will come a lot closer knowing your views on politics, money, and love than merely knowing you grew up in Florida and are a librarian. 
+  - feelings
+    - when you disclose feelings to others, you encourage them to identify with you and to share their feelings in turn.
+- How to interest others in your self-disclosing
+  - Common problems
+    - Projecting a false image
+    - Not being believed
+      - Be specific
+      - Show how you were feeling by painting word pictures
+      - Reveal some negatives
+      - Not owning your statements
+      - Holding back for fear of boring the other person
+
 
