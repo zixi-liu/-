@@ -70,4 +70,16 @@ Self-Disclosing
       - Not owning your statements
       - Holding back for fear of boring the other person
 
+## Chapter 6. Starting Conversations
 
+Three topics to choose from:
+- the situation
+- the other person
+- yourself
+
+ Three ways to begin:
+ - asking a question
+ - voicing an opinion
+ - stating a fact
+
+Talking about the situation
