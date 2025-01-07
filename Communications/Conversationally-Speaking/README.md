@@ -83,3 +83,7 @@ Three topics to choose from:
  - stating a fact
 
 Talking about the situation
+
+Talking about the other person
+- observe what the other person is doing, wearing, saying, and reading
+- opening remarks which convey yout interest in the other person
