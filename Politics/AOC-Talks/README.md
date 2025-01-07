@@ -1,0 +1,35 @@
+
+11/06/2024
+- Take a minute or two to let you all hop on..
+- Feel free to drop .. in the chat
+- Lay of the land: the current situation
+- underscore
+- hinge on: depend on
+- Give a ledge: could metaphorically mean offering a place to rest or a break in a challenging situation.
+- has a lot of influence over
+- have a shot at
+- on this note: typically signals that the speaker or writer is wrapping up, making a related remark, or transitioning to something else inspired by the current topic.
+  - "On this note, let’s move on to discussing how we can implement these changes in our project."
+  - "On this note, I’d like to thank everyone for their hard work and dedication." (Signals a wrap-up and gratitude based on the discussion.)
+  - "On this note, let’s grab some coffee and continue brainstorming." (Wraps up a specific idea or discussion while suggesting an action.)
+- keeping up with comments
+- give to you all very straight
+- through the roof: describe something that has increased or risen to an extremely high level, often in an unexpected or dramatic way
+  - "After the product launch, our sales went through the roof!" (Indicates a dramatic increase in sales.)
+  - "The cost of living has gone through the roof in recent years." (Refers to prices becoming extremely high.)
+- sugarcoat
+- poised to
+- open up: to become more communicative or expressive
+- lose the forest for the trees
+- an avalanche of: suggests suddenness and overwhelming volume.
+- high-minded about: typically means having or expressing noble, elevated, or idealistic intentions, values, or principles, often with a sense of being above mundane or practical concerns
+- hold differences
+- distinguish an ally from an opponent
+- grow past that
+- unequivocally: in a way that leaves no doubt or ambiguity; clearly and without any uncertainty.
+  - "The data unequivocally shows that the new strategy is working."(Means the evidence is clear and not open to interpretation.)
+- transcends
+- take issue: disagree or express opposition to something, often in a thoughtful or critical way
+  - "He took issue with how the team handled the project deadlines."(Critiques the way something was managed.)
+ 
+  - 
