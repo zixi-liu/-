@@ -31,5 +31,28 @@
 - transcends
 - take issue: disagree or express opposition to something, often in a thoughtful or critical way
   - "He took issue with how the team handled the project deadlines."(Critiques the way something was managed.)
- 
-  - 
+- exert: to use effort or power to achieve something.
+  - "She exerted all her energy to complete the marathon."
+- "the barrel of" can symbolize containment, pressure, or direction:
+  - The barrel of time (suggests a journey or process).
+  - Suggests being in a difficult or dangerous situation. Example: She was staring down the barrel of a tough decision.
+- price gouging refers to the practice of significantly increasing the prices of goods, services, or commodities to exploit demand during a crisis, emergency, or scarcity.
+- jack up: to significantly raise or increase the level, amount, or price of something.
+- put on the back foot: The competitor's sudden product launch put our company on the back foot, forcing us to accelerate our release schedule.
+- contend with: means to deal with or face a difficult situation, problem, or opposing force. It often implies effort, struggle, or competition.
+  - She had to contend with heavy traffic during her morning commute.
+- impugn: to dispute the truth, validity, or integrity of something; to call into question or challenge.
+- goes for: Used to indicate that something is true or applicable to multiple things or people.
+  - Example: What I said about honesty goes for everyone here.
+- bear out: Support for a Theory/Reinforcing an Argument
+  - The data bears out the hypothesis that exercise improves mental health.
+- gloss over: means to deal with something superficially or to avoid addressing it in detail, often to make it seem less significant or important than it actually is.
+  - She tried to gloss over her mistakes during the presentation.
+  - The report glossed over the major issues in the project.
+- a storm of
+- ascribe to: attributing a cause
+
+
+- "down to the wire" means waiting until the last possible moment to complete something or referring to a situation where the outcome remains uncertain until the very end.
+  - The team worked down to the wire to finish the project before the deadline.
+  - I always leave my assignments down to the wire and end up rushing.
