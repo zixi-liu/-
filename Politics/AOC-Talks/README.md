@@ -56,3 +56,22 @@
 - "down to the wire" means waiting until the last possible moment to complete something or referring to a situation where the outcome remains uncertain until the very end.
   - The team worked down to the wire to finish the project before the deadline.
   - I always leave my assignments down to the wire and end up rushing.
+
+07/23/2024
+- astronomical: used to describe something extremely large in size, quantity, or degree.
+  - "The company incurred an astronomical cost to launch the new product."
+- concede: To acknowledge something as true, valid, or correct, especially when you would rather not.
+- counterpoint
+- kick up: To create or intensify activity, trouble, or excitement.
+  - "The new policy changes kicked up some controversy among employees."
+- quibble: Engaging in a minor or petty disagreement, often avoiding the main issue.
+- kind of nuts
+  - something remarkable or unexpected: "The concert last night was kind of nuts! The energy was incredible."
+  - describes a situation that is hectic, disorganized, or overwhelming: "The office is kind of nuts right now with all the deadlines coming up."
+- speaks to
+  - refers to how something is relevant or connected to a particular topic or issue.
+  - suggests that something reveals or highlights a particular quality, condition, or truth. "Her dedication to the project speaks to her strong work ethic."
+  - indicates that something appeals to or connects emotionally with a person or audience. "The movie speaks to the struggles of everyday life."
+- leaving by the wayside
+  - "As the project progressed, several initial ideas were left by the wayside."
+- watershed moment
