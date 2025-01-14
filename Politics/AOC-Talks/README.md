@@ -75,3 +75,20 @@
 - leaving by the wayside
   - "As the project progressed, several initial ideas were left by the wayside."
 - watershed moment
+
+64w ago
+- rev up
+  - to increase intensity, energy, or activity in a situation.
+    - "The team revved up their efforts to meet the project deadline."
+  - In the context of engines, "rev up" refers to increasing the speed or revolutions per minute (RPM) of an engine.
+- lift the blockade
+  - A blockade can be physical (e.g., a military or naval blockade preventing the movement of goods or people) or figurative (e.g., sanctions, embargoes, or restrictions).
+- precipitate
+  - To cause something to happen suddenly or unexpectedly
+    - "The government's decision to raise taxes precipitated widespread protests."
+  - To send someone or something into a particular state or condition abruptly
+    - "His careless words precipitated her into a state of despair."
+- right off the bat
+  - immediately, without delay, or at the very beginning of something.
+  - "Right off the bat, she apologized for the mistake."
+  - "He made a good impression right off the bat during the interview."
