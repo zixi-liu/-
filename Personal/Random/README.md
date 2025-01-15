@@ -1,0 +1,24 @@
+
+**Billions**
+- Tinder
+  - Tinder refers to dry, flammable material (like dry grass, wood shavings, or paper) used to ignite a fire. It's often a base material for starting a flame when combined with a spark.
+- What's the occasion
+  - a common way to ask why something special or unusual is happening.
+    - When someone notices a party, fancy outfit, or something out of the ordinary, they might ask, "What's the occasion?" to learn the reason behind it.
+- Take a bite
+- roll on something
+  - Anticipation or Eagerness: "Roll on the weekend!" = "I can't wait for the weekend to come."
+  - Continue or Move Forward: "Let's roll on with the meeting." = "Let's continue with the meeting."
+- piggyback
+- deploy resources
+- strolling in
+  - "The solution won't just come strolling in; we need to work for it."
+- trail of bread crumbs
+  - Clues or Hints: A series of small pieces of information, hints, or steps that lead someone to a specific goal, conclusion, or destination.
+- head off to
+  - means to leave for a specific destination or start going somewhere.
+  - "Let's head off to the store to pick up some groceries."
+- the ground falls out from beneath
+  - It describes the feeling of being caught off guard or facing an unexpected and dramatic change.
+  - "When she lost her job, it felt like the ground fell out from beneath her."
+  - Loss of Confidence: "The ground fell out from beneath the team after their lead player got injured."
