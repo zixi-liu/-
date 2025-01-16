@@ -22,3 +22,26 @@
   - It describes the feeling of being caught off guard or facing an unexpected and dramatic change.
   - "When she lost her job, it felt like the ground fell out from beneath her."
   - Loss of Confidence: "The ground fell out from beneath the team after their lead player got injured."
+- Tune into
+  - direct your attention or focus toward something specific. It's often used metaphorically, inspired by the act of tuning a radio to a specific frequency to clearly receive a desired signal.
+  - "She tuned into the needs of her audience while speaking."
+  - Engage or Connect: "He tuned into the energy of the room before starting his presentation."
+- stiff
+  - Difficult to Move: Something that is stuck or hard to manipulate.
+    - "My neck feels stiff after sleeping in an awkward position."
+  - Describes something difficult, demanding, or strict.
+    - "The new regulations come with stiff penalties for violations."
+  - as a verb: Fail to Pay
+- cut bait on
+  - typically means to abandon or give up on something that is no longer worth pursuing.
+  - "After months of trying to fix the failing project, the company decided to cut bait on it and move on."
+  - "He finally cut bait on that toxic friendship."
+- go off
+  - Begin Discussing Something at Length or with Passion, often in a rant.
+  - "He went off about the importance of climate change policies."
+  - To Deteriorate or Spoil: "The milk has gone off—it smells terrible."
+- session notes
+- present
+  - "I heard about a position so I presented it."
+- let's take this down a notch
+  -  suggesting that someone or a situation needs to calm down, become less intense, or reduce its energy, volume, or severity.
