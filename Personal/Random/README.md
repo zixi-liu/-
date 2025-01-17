@@ -44,4 +44,23 @@
 - present
   - "I heard about a position so I presented it."
 - let's take this down a notch
-  -  suggesting that someone or a situation needs to calm down, become less intense, or reduce its energy, volume, or severity.
+  - suggesting that someone or a situation needs to calm down, become less intense, or reduce its energy, volume, or severity.
+- bail on
+  - to abandon, leave, or give up on someone, something
+  - "He decided to bail on the project halfway through."
+- muddy up
+  - Refers to complicating a situation, explanation, or understanding, often by adding unnecessary details or distractions.
+    - "His vague answers only muddied up the situation." (His unclear responses made the situation more confusing.)
+  - Refers to literally making something covered with mud or dirt.
+    - "The kids muddied up the kitchen after playing outside."
+- rub it on
+- balk at
+  - to hesitate, show reluctance, or refuse to proceed with something, often due to fear, doubt, or disapproval.
+  - "She balked at the idea of working late every night."
+  - "The company balked at the high cost of the new software."
+- got popped
+  - Got caught or arrested: "He got popped for speeding on the highway."
+  - Caught off guard or surprised: "I got popped with an unexpected assignment at work."
+- confide in
+  - to trust someone enough to share your personal thoughts, secrets, or feelings with them, typically in confidence and expecting privacy.
+
