@@ -64,3 +64,7 @@
 - confide in
   - to trust someone enough to share your personal thoughts, secrets, or feelings with them, typically in confidence and expecting privacy.
 
+Deep Dive into LLMs like ChatGPT
+- sharp edge
+  - generally refers to a situation, quality, or characteristic that is intense, critical, or potentially harmful
+  - Difficult Decisions: Making tough choices that could lead to significant consequences, much like navigating a sharp edge.
